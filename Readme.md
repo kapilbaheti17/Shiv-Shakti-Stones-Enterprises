@@ -30,8 +30,6 @@ The detailed image showing the various colors and structure is shown below:
 
 ![Teakwood Sandstone](Teakwood Final.jpg)
 
-
-
 *Since we deal in cut to size tiles as per container basis for the Teakwood and Rainbow Sandstone, we offer the below shown variation for both.*
 
 ![Teakwood Sandstone](Rainbow Variations.jpg)
