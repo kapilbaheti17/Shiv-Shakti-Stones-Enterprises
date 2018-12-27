@@ -28,7 +28,7 @@ The detailed image showing the various colors and structure is shown below:
 
 ![Rainbow Sandstone](https://github.com/kapilbaheti17/Shiv-Shakti-Stones-Enterprises/blob/master/Rainbow%20Final.jpg)
 
-![Teakwood Sandstone](https://github.com/kapilbaheti17/Shiv-Shakti-Stones-Enterprises/blob/master/Teakwood%20Final.jpg)
+![Teakwood Sandstone](https://github.com/kapilbaheti17/Shiv-Shakti-Stones-Enterprises/blob/master/Teakwood%20Final.JPG)
 
 *Since we deal in cut to size tiles as per container basis for the Teakwood and Rainbow Sandstone, we offer the below shown variation for both.*
 
@@ -42,9 +42,9 @@ The detailed image showing the various colors and structure is shown below:
 
 The detailed images of our other sandstone product is shown below.
 
-![Mint Gold](https://github.com/kapilbaheti17/Shiv-Shakti-Stones-Enterprises/blob/master/Mint%20Gold%20Final.jpg)
+![Mint Gold](https://github.com/kapilbaheti17/Shiv-Shakti-Stones-Enterprises/blob/master/Mint%20Gold%20Final.JPG)
 
-![Mint White](https://github.com/kapilbaheti17/Shiv-Shakti-Stones-Enterprises/blob/master/Mint%20White%20Final.jpg)
+![Mint White](https://github.com/kapilbaheti17/Shiv-Shakti-Stones-Enterprises/blob/master/Mint%20White%20Final.JPG)
 
 ![Wonderwood Sandstone](https://github.com/kapilbaheti17/Shiv-Shakti-Stones-Enterprises/blob/master/Wonderwood%20Final.jpg)
 
