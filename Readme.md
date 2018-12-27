@@ -26,7 +26,7 @@ Being in trading with clients from Australia, UK, South Africa and various place
 We have been supplying the material to many people within the country for usage in creating artifacts and monuments due to color and presence of vibrance in the material.
 The detailed image showing the various colors and structure is shown below:
 
-![Rainbow Sandstone](https://github.com/kapilbaheti17/Shiv-Shakti-Stones-Enterprises/blob/master/Rainbow Final.jpg)
+![Rainbow Sandstone](https://github.com/kapilbaheti17/Shiv-Shakti-Stones-Enterprises/blob/master/Rainbow%20Final.jpg)
 
 ![Teakwood Sandstone](Teakwood Final.jpg)
 
