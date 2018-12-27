@@ -44,19 +44,19 @@ The detailed images of our other sandstone product is shown below.
 
 ![Mint Gold](https://github.com/kapilbaheti17/Shiv-Shakti-Stones-Enterprises/blob/master/Mint%20Gold%20Final.JPG)
 
-![Mint White](https://github.com/kapilbaheti17/Shiv-Shakti-Stones-Enterprises/blob/master/Mint%20White%20Final.JPG)
+![Mint White](https://github.com/kapilbaheti17/Shiv-Shakti-Stones-Enterprises/blob/master/Mint%20White%20Final.jpg)
 
-![Wonderwood Sandstone](https://github.com/kapilbaheti17/Shiv-Shakti-Stones-Enterprises/blob/master/Wonderwood%20Final.jpg)
+![Wonderwood Sandstone](https://github.com/kapilbaheti17/Shiv-Shakti-Stones-Enterprises/blob/master/Wonderwood%20Final.JPG)
 
-![Dholpur Biege](https://github.com/kapilbaheti17/Shiv-Shakti-Stones-Enterprises/blob/master/Dholpur%20Beige%20Final.jpg)
+![Dholpur Biege](https://github.com/kapilbaheti17/Shiv-Shakti-Stones-Enterprises/blob/master/Dholpur%20Beige%20Final.JPG)
 
 ![Kandla Grey](https://github.com/kapilbaheti17/Shiv-Shakti-Stones-Enterprises/blob/master/Kandla%20Grey%20Final.jpg)
 
-![Raveena Sandstone](https://github.com/kapilbaheti17/Shiv-Shakti-Stones-Enterprises/blob/master/Raveena%20Final.jpg)
+![Raveena Sandstone](https://github.com/kapilbaheti17/Shiv-Shakti-Stones-Enterprises/blob/master/Raveena%20Final.JPG)
 
-![Rajgreen Final](https://github.com/kapilbaheti17/Shiv-Shakti-Stones-Enterprises/blob/master/Rajgreen%20Final.jpg)
+![Rajgreen Final](https://github.com/kapilbaheti17/Shiv-Shakti-Stones-Enterprises/blob/master/Rajgreen%20Final.JPG)
 
-![Agra Red](https://github.com/kapilbaheti17/Shiv-Shakti-Stones-Enterprises/blob/master/Agra%20Red%20Final.jpg)
+![Agra Red](https://github.com/kapilbaheti17/Shiv-Shakti-Stones-Enterprises/blob/master/Agra%20Red%20Final.JPG)
 
 
 Note: We deal in all kinds of product related to these sandstones be it Cut to size tiles, natural blocks, pebbles, pavers, honed tiles, shot and sand blast tiles and artifacts.
@@ -65,13 +65,13 @@ Note: We deal in all kinds of product related to these sandstones be it Cut to s
 
 ### *Marbles*
 
-![Marble One](https://github.com/kapilbaheti17/Shiv-Shakti-Stones-Enterprises/blob/master/Marble%20One.jpg)
+![Marble One](https://github.com/kapilbaheti17/Shiv-Shakti-Stones-Enterprises/blob/master/Marble%20One.JPG)
 
-![Marble Two](https://github.com/kapilbaheti17/Shiv-Shakti-Stones-Enterprises/blob/master/Marble%20Two.jpg)
+![Marble Two](https://github.com/kapilbaheti17/Shiv-Shakti-Stones-Enterprises/blob/master/Marble%20Two.JPG)
 
 ### *Granites*
 
-![Granite One](https://github.com/kapilbaheti17/Shiv-Shakti-Stones-Enterprises/blob/master/Granite%20One.jpg)
+![Granite One](https://github.com/kapilbaheti17/Shiv-Shakti-Stones-Enterprises/blob/master/Granite%20One.JPG)
 
 
 
