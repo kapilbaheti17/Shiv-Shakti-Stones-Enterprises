@@ -26,17 +26,17 @@ Being in trading with clients from Australia, UK, South Africa and various place
 We have been supplying the material to many people within the country for usage in creating artifacts and monuments due to color and presence of vibrance in the material.
 The detailed image showing the various colors and structure is shown below:
 
-![Rainbow Sandstone](./Rainbow Final.jpg)
+![Rainbow Sandstone](Rainbow Final.jpg)
 
-![Teakwood Sandstone](./Teakwood Final.jpg)
+![Teakwood Sandstone](Teakwood Final.jpg)
 
 
 
 *Since we deal in cut to size tiles as per container basis for the Teakwood and Rainbow Sandstone, we offer the below shown variation for both.*
 
-![Teakwood Sandstone](./Rainbow Variations.jpg)
+![Teakwood Sandstone](Rainbow Variations.jpg)
 
-![Teakwood Sandstone](./Teakwood Variations.jpg)
+![Teakwood Sandstone](Teakwood Variations.jpg)
 
 
 
@@ -44,21 +44,21 @@ The detailed image showing the various colors and structure is shown below:
 
 The detailed images of our other sandstone product is shown below.
 
-![Mint Gold](./Mint Gold Final.jpg)
+![Mint Gold](Mint Gold Final.jpg)
 
-![Mint White](./Mint White Final.jpg)
+![Mint White](Mint White Final.jpg)
 
-![Wonderwood Sandstone](./Wonderwood Final.jpg)
+![Wonderwood Sandstone](Wonderwood Final.jpg)
 
-![Dholpur Biege](./Dholpur Beige Final.jpg)
+![Dholpur Biege](Dholpur Beige Final.jpg)
 
-![Kandla Grey](./Kandla Grey Final.jpg)
+![Kandla Grey](Kandla Grey Final.jpg)
 
-![Raveena Sandstone](./Raveena Final.jpg)
+![Raveena Sandstone](Raveena Final.jpg)
 
-![Rajgreen Final](./Rajgreen Final.jpg)
+![Rajgreen Final](Rajgreen Final.jpg)
 
-![Agra Red](./Agra Red Final.jpg)
+![Agra Red](Agra Red Final.jpg)
 
 
 Note: We deal in all kinds of product related to these sandstones be it Cut to size tiles, natural blocks, pebbles, pavers, honed tiles, shot and sand blast tiles and artifacts.
@@ -67,13 +67,13 @@ Note: We deal in all kinds of product related to these sandstones be it Cut to s
 
 ### *Marbles*
 
-![Marble One](./Marble One.jpg)
+![Marble One](Marble One.jpg)
 
-![Marble Two](./Marble Two.jpg)
+![Marble Two](Marble Two.jpg)
 
 ### *Granites*
 
-![Granite One](./Granite One.jpg)
+![Granite One](Granite One.jpg)
 
 
 
@@ -82,7 +82,7 @@ Note: We deal in all kinds of product related to these sandstones be it Cut to s
 Beside working with natural quality sandstone, we stepped ourselves into the section of Sandstone mosaics and design tiles.
 Shown below few of our products from the mosaic and tiles section. 
 
-![Teakwood Tiles](./Teakwood Tiles.jpg)
+![Teakwood Tiles](Teakwood Tiles.jpg)
 
 
 
