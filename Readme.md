@@ -28,13 +28,13 @@ The detailed image showing the various colors and structure is shown below:
 
 ![Rainbow Sandstone](https://github.com/kapilbaheti17/Shiv-Shakti-Stones-Enterprises/blob/master/Rainbow%20Final.jpg)
 
-![Teakwood Sandstone](Teakwood Final.jpg)
+![Teakwood Sandstone](https://github.com/kapilbaheti17/Shiv-Shakti-Stones-Enterprises/blob/master/Teakwood%20Final.jpg)
 
 *Since we deal in cut to size tiles as per container basis for the Teakwood and Rainbow Sandstone, we offer the below shown variation for both.*
 
-![Teakwood Sandstone](Rainbow Variations.jpg)
+![Teakwood Sandstone](https://github.com/kapilbaheti17/Shiv-Shakti-Stones-Enterprises/blob/master/Rainbow%20Variations.jpg)
 
-![Teakwood Sandstone](Teakwood Variations.jpg)
+![Teakwood Sandstone](https://github.com/kapilbaheti17/Shiv-Shakti-Stones-Enterprises/blob/master/Teakwood%20Variations.jpg)
 
 
 
@@ -42,21 +42,21 @@ The detailed image showing the various colors and structure is shown below:
 
 The detailed images of our other sandstone product is shown below.
 
-![Mint Gold](Mint Gold Final.jpg)
+![Mint Gold](https://github.com/kapilbaheti17/Shiv-Shakti-Stones-Enterprises/blob/master/Mint%20Gold%20Final.jpg)
 
-![Mint White](Mint White Final.jpg)
+![Mint White](https://github.com/kapilbaheti17/Shiv-Shakti-Stones-Enterprises/blob/master/Mint%20White%20Final.jpg)
 
-![Wonderwood Sandstone](Wonderwood Final.jpg)
+![Wonderwood Sandstone](https://github.com/kapilbaheti17/Shiv-Shakti-Stones-Enterprises/blob/master/Wonderwood%20Final.jpg)
 
-![Dholpur Biege](Dholpur Beige Final.jpg)
+![Dholpur Biege](https://github.com/kapilbaheti17/Shiv-Shakti-Stones-Enterprises/blob/master/Dholpur%20Beige%20Final.jpg)
 
-![Kandla Grey](Kandla Grey Final.jpg)
+![Kandla Grey](https://github.com/kapilbaheti17/Shiv-Shakti-Stones-Enterprises/blob/master/Kandla%20Grey%20Final.jpg)
 
-![Raveena Sandstone](Raveena Final.jpg)
+![Raveena Sandstone](https://github.com/kapilbaheti17/Shiv-Shakti-Stones-Enterprises/blob/master/Raveena%20Final.jpg)
 
-![Rajgreen Final](Rajgreen Final.jpg)
+![Rajgreen Final](https://github.com/kapilbaheti17/Shiv-Shakti-Stones-Enterprises/blob/master/Rajgreen%20Final.jpg)
 
-![Agra Red](Agra Red Final.jpg)
+![Agra Red](https://github.com/kapilbaheti17/Shiv-Shakti-Stones-Enterprises/blob/master/Agra%20Red%20Final.jpg)
 
 
 Note: We deal in all kinds of product related to these sandstones be it Cut to size tiles, natural blocks, pebbles, pavers, honed tiles, shot and sand blast tiles and artifacts.
@@ -65,13 +65,13 @@ Note: We deal in all kinds of product related to these sandstones be it Cut to s
 
 ### *Marbles*
 
-![Marble One](Marble One.jpg)
+![Marble One](https://github.com/kapilbaheti17/Shiv-Shakti-Stones-Enterprises/blob/master/Marble%20One.jpg)
 
-![Marble Two](Marble Two.jpg)
+![Marble Two](https://github.com/kapilbaheti17/Shiv-Shakti-Stones-Enterprises/blob/master/Marble%20Two.jpg)
 
 ### *Granites*
 
-![Granite One](Granite One.jpg)
+![Granite One](https://github.com/kapilbaheti17/Shiv-Shakti-Stones-Enterprises/blob/master/Granite%20One.jpg)
 
 
 
@@ -80,7 +80,7 @@ Note: We deal in all kinds of product related to these sandstones be it Cut to s
 Beside working with natural quality sandstone, we stepped ourselves into the section of Sandstone mosaics and design tiles.
 Shown below few of our products from the mosaic and tiles section. 
 
-![Teakwood Tiles](Teakwood Tiles.jpg)
+![Teakwood Tiles](https://github.com/kapilbaheti17/Shiv-Shakti-Stones-Enterprises/blob/master/Teakwood%20Tiles.jpg)
 
 
 
