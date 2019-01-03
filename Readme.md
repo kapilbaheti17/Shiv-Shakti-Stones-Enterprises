@@ -69,26 +69,34 @@ Note: We deal in all kinds of product related to these sandstones be it Cut to s
 
 ![Marble Two](https://github.com/kapilbaheti17/Shiv-Shakti-Stones-Enterprises/blob/master/Marble%20Two.JPG)
 
+***
+
 ### *Granites*
 
 ![Granite One](https://github.com/kapilbaheti17/Shiv-Shakti-Stones-Enterprises/blob/master/Granite%20One.JPG)
 
+***
 
-
-## *Mosaics*
+### *Mosaics*
 
 Beside working with natural quality sandstone, we stepped ourselves into the section of Sandstone mosaics and design tiles.
 Shown below few of our products from the mosaic and tiles section. 
 
 ![Teakwood Tiles](https://github.com/kapilbaheti17/Shiv-Shakti-Stones-Enterprises/blob/master/Teakwood%20Tiles.jpg)
 
-
-
 **Note:** The designs and quality shown above is same available in Rainbow Sandstone also.
+
+***
+
+### *Our Processing and Delivery Strategy*
+
+![SSSE Strategy](https://github.com/kapilbaheti17/Shiv-Shakti-Stones-Enterprises/blob/master/SSSE%20FlowChart.jpg)
+
+***
 
 ### *Our Processing Unit*
 
-Beside the producer of Sandstone, we are the potential processing unit of granite with the capacity to process over a lakh square feet of granite in the month. 
+Beside the producer of Sandstone, we are the potential processing unit of granite with the capacity to process over a lakh square feet of granite in a month. 
 Our processing unit consist of 4 Multi-blade cutters (2 - Nine blade cutters and  2- Five blade cutters) and 1 Single blade cutters along with 5 hand-polisher machine making it one potential unit to process good quantity of granite.
 
 ### *Contact Us / Reach Out*
@@ -98,3 +106,9 @@ Our processing unit consist of 4 Multi-blade cutters (2 - Nine blade cutters and
 ***Quarry Site***: No.: 53 Gram Kachras, Badi Khatu, Distt. Nagaur
 
 ***Processing Unit***: Mordi Industrial Area, Roopangarh, Distt. Ajmer
+
+***Contact Person***: Rajesh Maheshwari (+91 - 9414045228 / 7014797488) - siyaram134@yahoo.co.in
+
+***Company E-Mail***: shivshaktistones26@gmail.com
+
+***Company Website***: www.shivshaktistones.com
